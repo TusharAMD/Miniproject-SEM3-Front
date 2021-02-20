@@ -1,4 +1,4 @@
-### Contributions
-# Shriya Bijam
-# Tushar Amdoskar
+# Contributions
+### Shriya Bijam
+### Tushar Amdoskar
 
